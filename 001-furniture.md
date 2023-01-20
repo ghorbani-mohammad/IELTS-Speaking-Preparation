@@ -8,3 +8,7 @@
 ---
 #### 3. What kind of furniture would you like to buy?
 "**Ideally**, I'd like to get a nice and professional **swivel chair**, because sitting in my current one for too long make my back hurt. It didn't cost very much when I bought my current one, so I would like to **splurge** on something **top-of-the-line** that I would enjoy sitting in for **extended periods of time**."
+
+---
+#### 4. Which furniture do you like best in your home?
+"I've got **the comfiest** sofa at home. So I usually end up **nodding off** every time I watch a movie on it because it's so relaxing. I paid quite a lot for a **memory foam mattress** too, so my bed and my sofa are my two favorite **items of furniture** in my place."
