@@ -1,0 +1,2 @@
+#### 1. What sports did you do when you were a kid?
+"When I was a kid I was **really into** athletics. My **preferred events** were the 400 and 800 meters, but also **had a go** at long jump as well. I think I was pretty good at it, because I **represented** my school a few times in some **local contests**, but I stopped **competing** in high school because I put **all my energy** towards my studies. **Other than that**, I enjoyed football and basketball because I could play them with my friends."
