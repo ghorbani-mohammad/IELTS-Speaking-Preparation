@@ -8,3 +8,7 @@
 ---
 #### 3. Will you recycle in the future?
 "Absolutely, I'm not going to stop until **a better solution comes along**. Recycling is the best way for people to start reducing the **sheer amount of** plastic **polluting** our environment, so I fully support it and will continue to do it **for as long as necessary**."
+
+---
+#### 4. What kind of things do you recycle?
+"I try to recycle as much as I can. I **crush** metal cans, I **rinse** and crush plastic bottles too. I also **flatten** cardboard boxes when I get online deliveries. If I have any appliances that break, then I'll even try to recycle those by **dropping them off** at a **recycling plant** to be **taken apart**."
