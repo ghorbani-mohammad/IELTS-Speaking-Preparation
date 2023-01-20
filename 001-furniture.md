@@ -1,2 +1,2 @@
-### 1. Do you have a lof of furniture in your home?
+#### 1. Do you have a lof of furniture in your home?
 "I have **quite a bit** actually." I've got **a big sofa** in my living room in front of the TV, there's also a **smallish dining table** with few small chairs around the it.
