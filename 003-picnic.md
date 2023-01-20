@@ -8,3 +8,7 @@
 ---
 #### 3. Where do you go on a picnic?
 "If I had to go on a picnic, I suppose I would try and have one **down by the river** in the park near my home. It's quite **a secluded little spot** so we'd have some **peace and quiet**, and I'd probably invite my family or just **head there** with my partner some food and **fresh air**."
+
+---
+#### 4. What is the difference between a picnic and cooking at home?
+"I suppose the main differences are the types of food that you can prepare or **pack**. For a picnic, for example, you have to bring **portable** food that doesn't require any **cutlery** like fruit, sandwiches or snacks. Also, if you don't want your picnic basket to be **cumbersome** and heavy, then you can only pack **small-ish portions of food**. **Whereas** at home, you are free to cook **whatever your heart desires**, because you don't have to take it anywhere."
