@@ -1,4 +1,4 @@
-### IELTS Speaking Part 2 Samples
+### IELTS Speaking Examples
 
 
 #### List of Contents:
