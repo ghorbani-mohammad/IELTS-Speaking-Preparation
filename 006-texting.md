@@ -1,1 +1,2 @@
 #### 1. Do you like texting?
+"Texting is actually my **preferred way** of contacting people these days because I can reach out to my friends and family **anytime, anywhere**. I think it's much more **convenient** than ringing someone because they can just reply when they've got **a spare moment** instead of me **interrupting** them."
