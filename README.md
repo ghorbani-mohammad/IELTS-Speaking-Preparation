@@ -7,3 +7,4 @@
 - **003 Picnic**: [File](https://github.com/ghorbani-mohammad/ielts-speaking-preparation/blob/main/003-picnic.md)
 - **004 Recycling**: [File](https://github.com/ghorbani-mohammad/ielts-speaking-preparation/blob/main/004-recycling.md)
 - **005 Sports**: [File](https://github.com/ghorbani-mohammad/ielts-speaking-preparation/blob/main/005-sports.md)
+- **006 Texting**: [File](https://github.com/ghorbani-mohammad/ielts-speaking-preparation/blob/main/006-texting.md)
