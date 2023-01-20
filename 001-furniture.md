@@ -11,4 +11,4 @@
 
 ---
 #### 4. Which furniture do you like best in your home?
-"I've got **the comfiest** sofa at home. So I usually end up **nodding off** every time I watch a movie on it because it's so relaxing. I paid quite a lot for a **memory foam mattress** too, so my bed and my sofa are my two favorite **items of furniture** in my place."
+"I've got **the comfiest** sofa at home. So I usually end up **nodding off** every time I watch a movie on it because it's so relaxing. I paid quite a lot of money for a **memory foam mattress** too, so my bed and my sofa are my two favorite **items of furniture** in my place."
