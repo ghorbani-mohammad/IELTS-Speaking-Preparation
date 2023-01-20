@@ -1,0 +1,2 @@
+#### 1. Do you recycle now? Why?
+"Yes I do. I've been recycling **for as long as I can remember**. I think it's extremely important that everyone tries to reduce their **impact on the planet**, and recycling is a very **straightforward** and **impactful** way to **cut down on** the amount of waste we produce. So I always crush **cans**, **rinse** plastic bottles, and **separate** my rubbish before **disposing** of it in the right **receptacle**."
