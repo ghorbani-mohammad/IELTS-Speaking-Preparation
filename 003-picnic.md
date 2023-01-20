@@ -4,3 +4,7 @@
 ---
 #### 2. How often do you go on a picnic now?
 "Never, to be **totally honest**. I don't think I've been on a picnic **in my adult life**. Maybe I will when I'm a bit older or have children, but I'm mich more interested in eating at restaurants because they serve **a wider selection of meals**, it's nice and warm in the winter and you don't have to do any of the **washing up** afterwards!"
+
+---
+#### 3. Where do you go on a picnic?
+"If I had to go on a picnic, I suppose I would try and have one **down by the river** in the park near my home. It's quite **a secluded little spot** so we'd have some **peace and quiet**, and I'd probably invite my family or just **head there** with my partner some food and **fresh air**."
