@@ -1,0 +1,2 @@
+#### 1. Do you make a list when you shop?
+"Yes, definitely. I have to **or else** I'll forget everything that I went to the supermarket for. My partner and I use an **online note-keeping app** on our phones so we can update each other's lists with new items while one of us is shopping, that way we don't forget anything."
