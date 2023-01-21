@@ -1,5 +1,5 @@
 #### 1. Did you go on picnics when you were a child?
-"To be honest, hardly ever. There was a park just a stone's throw from our house, but we only ever played soccer or rode our bikes around it - we never used to bring any food. Instead, we tended to eat at one of the nearby restaurants because it was easier and they served better food than anything we could bring in a picnic basket!"
+"To be honest, **hardly ever**. There was a park just **a stone's throw from** our house, but we only ever played soccer or rode our bikes around it - we **never used to** bring any food. Instead, we **tended to** eat at one of the nearby restaurants because it was easier and they served better food than anything we could bring in a picnic basket!"
 
 ---
 #### 2. How often do you go on a picnic now?
