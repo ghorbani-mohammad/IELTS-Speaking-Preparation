@@ -1,2 +1,5 @@
 #### 1. What bad behavior do children usually do?
 "Children tend to **act out** by being very load, which is often **disruptive** for their parents and their teachers. As well as that, sometimes children **disrespect** public spaces by littering or leaving their empty food wrappers on the ground behind them. As kids become teens, they might start **swearing** to **look cool** in front of their friends because they think it's **rebellious** and makes them seem **fearless**."
+
+#### 2. How should parents stop their children from behaving badly in public?
+"I think parents first need to **instill** some good behaviors into their children, as in, they need to remind them to have respect for other people's personal space and **social etiquette**. By setting rules and **disciplining** them for breaking them, their kids will eventually learn **right from wrong**. That way, even if they are **unsupervised**, the children will remember to follow rules and behave well."
