@@ -4,3 +4,7 @@
 ---
 #### 2. Do you prefer sending or receiving messages?
 "I suppose I prefer getting texts, because they are usually funny **memes** or messages from my friends. **Getting an alert** from one of my friends also feels good because it means they were **thinking of me** or wanted to show me something that will make me laugh."
+
+---
+#### 3. Have you ever received a confusing text message?
+"Yes definitely. Sometimes my friends send me messages **by mistake**, instead of their parents or colleagues. It's **easily done** because our **thumbs** are faster than our eyes nowadays. Normally we just **laugh it off** because it is **an honest mistake**, and I'm sure I've done the same to some of my friends as well."
