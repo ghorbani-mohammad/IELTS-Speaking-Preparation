@@ -9,3 +9,4 @@
 - **005 Sports**: [File](https://github.com/ghorbani-mohammad/ielts-speaking-preparation/blob/main/005-sports.md)
 - **006 Texting**: [File](https://github.com/ghorbani-mohammad/ielts-speaking-preparation/blob/main/006-texting.md)
 - **007 Weekends**: [File](https://github.com/ghorbani-mohammad/ielts-speaking-preparation/blob/main/007-weekends.md)
+- **008 Hurrying&Rushing**: [File](https://github.com/ghorbani-mohammad/ielts-speaking-preparation/blob/main/007-weekends.md)

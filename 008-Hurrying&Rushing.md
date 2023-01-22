@@ -1,0 +1,2 @@
+#### 1. What do you always do in a hurry? Why?
+"I always end up **scoffing down** my breakfast every weekday morning - probably because I always **hit snooze** on my phone so I can sleep in a little longer. I can eat a bowl of cereal or some fruit in **just under 5 minutes** before I head out the door - I'm getting quite good at it now."
