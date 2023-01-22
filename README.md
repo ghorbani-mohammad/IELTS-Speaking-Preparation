@@ -11,4 +11,4 @@
 - **007 Weekends**: [File](https://github.com/ghorbani-mohammad/ielts-speaking-preparation/blob/main/007-weekends.md)
 - **008 Hurrying&Rushing**: [File](https://github.com/ghorbani-mohammad/ielts-speaking-preparation/blob/main/008-Hurrying%26Rushing.md)
 - **009 Behavior**: [File](https://github.com/ghorbani-mohammad/ielts-speaking-preparation/blob/main/009-Behavior.md)
-- **010 Decision**: [File]()
+- **010 Decision**: [File](https://github.com/ghorbani-mohammad/ielts-speaking-preparation/blob/main/010-decision.md)
