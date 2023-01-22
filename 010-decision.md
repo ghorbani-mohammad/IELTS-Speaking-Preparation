@@ -1,0 +1,2 @@
+#### 1. What decision do people make every day?
+"I think people make **dozens** of little decision every day. **First and foremost**, they have to decide what to eat for all 3 **main meals** of the day. As well as that, they need to choose their outfits - either for work or for informal occasions. The biggest decisions probably come at work while they're completing their daily tasks and trying to help their colleagues or customers."
