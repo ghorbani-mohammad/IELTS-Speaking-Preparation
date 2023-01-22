@@ -4,3 +4,7 @@
 ---
 #### 2. What kind of things would you never do in a hurry?
 "I never like to **rush** shaving because my razor blades are pretty sharp. So if I'm not **careful**, I usually end up **nicking** myself with the blade, which hurts and takes time to clean up as well. I also **take my time** when I'm cooking for much the same reasons, because I'm always **afraid of** cutting myself while chopping vegetables, so I do it **nice and slowly**."
+
+---
+#### 3. Do you usually go out in a hurry?
+"I try to **give myself enough time** to **get ready regardless of whether** I'm going to work or going out to see my friends. If it's **the latter** then I'll **try on** one or two different outfits, and I'll also **double check** to **make sure** I bring everything with me like my phone, my wallet or my keys."
