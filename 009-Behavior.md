@@ -1,0 +1,2 @@
+#### 1. What bad behavior do children usually do?
+"Children tend to **act out** by being very load, which is often **disruptive** for their parents and their teachers. As well as that, sometimes children **disrespect** public spaces by littering or leaving their empty food wrappers on the ground behind them. As kids become teens, they might start **swearing** to **look cool** in front of their friends because they think it's **rebellious** and makes them seem **fearless**."
