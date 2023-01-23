@@ -1,4 +1,5 @@
 ### IELTS Speaking Examples
+In each subject, there are some questions and answers which you could use for getting some ideas on how to answer in the real exam.
 
 
 #### List of Contents:
