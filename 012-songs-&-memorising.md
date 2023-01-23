@@ -1,0 +1,2 @@
+#### 1. Are you good at memorising things?
+"I've got **a memory like a sieve**, unfortunately. Most information **goes in one ear and out the other**. I can just about remember my phone nad PIN number because those are obviously very important, but everything else, like names, birthdays, dates or vocabulary, if I don't write it down and try to **commit it to memory**, I'll forget it."
