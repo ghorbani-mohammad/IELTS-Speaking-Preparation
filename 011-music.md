@@ -8,3 +8,7 @@
 ---
 #### 3. Do you think music concerts are suitable for old people to attend?
 "Definitely. Most concert halls have **seating options**, either at the back or **in the wings**. So if an elderly person decides to attend a concert, they can sit down if they need to **take a rest**. There are also some artists who have **predominantly** older fans, so they definitely try to make their concerts suitable for people **of all ages**."
+
+---
+#### 4. Why do shopping malls often have background music?
+"I think they're trying to create a relaxing and comforting **ambience** for their customers. If there wasn't any music being played in a mall, then it would sound uncomfortably quiet. You could hear everyone's conversations, every footstep, and the food court would be very loud. So I guess that's why they play 'muzak' or background music."
