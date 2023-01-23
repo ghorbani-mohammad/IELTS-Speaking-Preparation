@@ -1,0 +1,2 @@
+#### 1. Why do many young people spend a lot of money on music concerts?
+"It seems like young people are willing to fork over a lot of money for concert tickets just to get a glimpse of their favorite stars in the flesh. Usually they only see them through social media or on screens, so they'll get a chance to interact with or talk to the singer or the band as well."
