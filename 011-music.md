@@ -11,4 +11,4 @@
 
 ---
 #### 4. Why do shopping malls often have background music?
-"I think they're trying to create a relaxing and comforting **ambience** for their customers. If there wasn't any music being played in a mall, then it would sound uncomfortably quiet. You could hear everyone's conversations, every footstep, and the food court would be very loud. So I guess that's why they play 'muzak' or background music."
+"I think they're trying to create a relaxing and comforting **ambience** for their customers. If there wasn't any music being played in a mall, then it would sound uncomfortably quiet. You could hear everyone's conversations, every **footstep**, and the food court would be very loud. So I guess that's why they play '**muzak**' or **background music**."
