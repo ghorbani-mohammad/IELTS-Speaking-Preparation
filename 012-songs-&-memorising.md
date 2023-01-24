@@ -4,3 +4,7 @@
 ---
 #### 2. Do you think children would like the rhythm of songs or poems? Why?
 "Children definitely do, we can see that from **nursery rhymes**, which always have **catchy**, fun and memorable **melody**. There are plenty of songs from school that I can still remember even today, like The Wheels on the Bush and Head-Shoulders-Knees-And-Toes because they have a **tune** that **sticks in your head**. Also, kids enjoy repeating things they like, so if a song is fun to **sing along** to, then they will do it lots of time and naturally remember it."
+
+---
+#### 3. Do you think it is easier for children to learn a song or poem than adults? Why?
+"I think it's easier for kids to remember things because their brains are **simply better** at it. As we get older, I think our **memory function** becomes more **sluggish** and it takes more effort to **commit something to memory**. Whereas when I was at school, I could memorize a whole song after just listening to it a few times, which I definitely can't do anymore."
