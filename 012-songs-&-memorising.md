@@ -8,3 +8,7 @@
 ---
 #### 3. Do you think it is easier for children to learn a song or poem than adults? Why?
 "I think it's easier for kids to remember things because their brains are **simply better** at it. As we get older, I think our **memory function** becomes more **sluggish** and it takes more effort to **commit something to memory**. Whereas when I was at school, I could memorize a whole song after just listening to it a few times, which I definitely can't do anymore."
+
+---
+#### 4. What can people learn from songs or poems?
+"Songwriters and poets are very good a finding **metaphors** and **analogies** that match our emotions, which means they can help us understand and describe how we feel much more accurately. I think that helps people learn how to describe their own feelings and emotions. Songs in other languages are also **a great tool** to help learner **pick up** new vocab and grammar structures, so we can learn a lot from songs and poems, I think."
