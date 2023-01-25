@@ -8,3 +8,7 @@
 ---
 #### 3. Can children make decisions on their own?
 "I think it depends on their level of **maturity** and the decision they're required to make. At a restaurant for example, the **stakes are pretty low**, so it's okay for young kids to decide what they want to eat. However, at school, kids probably shouldn't be allowed to choose what they study because **they would likely** just want to play games or draw pictures, so in that case it's better to let the teachers decide."
+
+---
+#### 4. When do people change their decisions?
+"I think most people **change their minds** if they realize that they've made a mistake. Maybe they weren't aware of a problem before they decided, or maybe a new an better solution has just **popped into their heads**. So those are some occasions when people might **go back on** themselves."
