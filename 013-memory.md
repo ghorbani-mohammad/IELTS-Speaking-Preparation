@@ -8,3 +8,7 @@
 ---
 #### 3. How can people improve their memory?
 "Nowadays it seems like there are plenty of '**brain-training** games' available online. I think they're supposed to test your **powers** of **recollection** and improve them with fun **matching** puzzles. There are also things called **'Mnemonic' devices**, where you **associate information** with images, or **build a sequence** of events in your head, so you can remember longer pieces of information. So those are some ways that I think could help."
+
+---
+#### 4. What do you think of people using calendars to remind themselves of things?
+"I think **it makes perfect sense**. If you have **a lot on your plate** at work, then a digital or physical calendar can help you **keep track of** important dates, meetings or deadlines. Birthdays, **anniversaries** and other special dates also have a habit of **sneaking up** on you, so having a calendar means there shouldn't be any surprises with your friends or at work."
