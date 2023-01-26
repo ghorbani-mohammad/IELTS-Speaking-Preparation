@@ -1,0 +1,2 @@
+#### 1. What kinds of things do people forget easily?
+"It's usually small, **everyday essentials**, like keys, phones, wallets and so on. Even though they are very important, we tend to **assume** that we always **have them on us**, so we can leave the house thinking that it's in your pocket or your bag, when it's actually sitting on **the counter** in the kitchen. Names, dates and birthdays usually **slip people's minds** as well because we already know so many that it's hard to remember any new ones."
