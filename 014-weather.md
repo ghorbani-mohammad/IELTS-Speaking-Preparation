@@ -8,3 +8,8 @@ I absolutely love springtime. I used to love summer when I was younger, because 
 ---
 #### 3. Why is this season your favorite?
 I love spring because the weather is finally starting to get nicer. The flowers start blooming, the sun comes out more often, and it's not as cold outside. It's a great time to go on walks and enjoy nature.
+
+---
+#### 4. How often do you check the weather? Why?
+I check the weather every day, sometimes multiple times a day. I'm a very weather-sensitive person and need to be prepared for all kinds of possible conditions. I know that some people find it obsessive, but it's just part of being conscientious and taking care of myself. I'd rather be safe than sorry!
+
