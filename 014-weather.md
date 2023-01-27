@@ -13,3 +13,6 @@ I love spring because the weather is finally starting to get nicer. The flowers 
 #### 4. How often do you check the weather? Why?
 I check the weather every day, sometimes multiple times a day. I'm a very weather-sensitive person and need to be prepared for all kinds of possible conditions. I know that some people find it obsessive, but it's just part of being conscientious and taking care of myself. I'd rather be safe than sorry!
 
+---
+#### 5. How your plans ever been affected by the weather?
+Yes, my plans have been constantly affected by the weather. Most recently, I was supposed to fly to Europe for a vacation, but my flight got cancelled because of the snowstorm that hit the east cost. I had to reschedule my flight and lost a lot of money.
