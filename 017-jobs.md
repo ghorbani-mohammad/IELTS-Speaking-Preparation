@@ -1,0 +1,2 @@
+#### 1. What kinds of jobs need a lot of physical work?
+One of the most physical jobs I can think of is construction work. A lot of those guys work in **the baking sun**, **lugging around** heavy materials like bricks, sand and concrete, all in **protective gear** which must be very hot too. Being mechanic must also be quite physical because wheels and engines are extremely **weighty**. Decorating a room is **surprisingly hard work** as well, even painting a wall or moving some furniture can be **exhausting**.
