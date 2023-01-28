@@ -18,3 +18,4 @@ In each subject, there are some questions and answers which you could use for ge
 - [**013 Memory**](https://github.com/ghorbani-mohammad/ielts-speaking-preparation/blob/main/013-memory.md)
 - [**014 Weather**](https://github.com/ghorbani-mohammad/ielts-speaking-preparation/blob/main/014-weather.md)
 - [**015 Jokes and Comedy**](https://github.com/ghorbani-mohammad/ielts-speaking-preparation/blob/main/015-jokes-%26-comedy.md)
+- [**016 Going Abroad**](https://github.com/ghorbani-mohammad/ielts-speaking-preparation/blob/main/016-going-abroad.md)
