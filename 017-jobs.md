@@ -8,3 +8,7 @@ Nowadays, jobs that require a high level of **mental intelligence** seem to earn
 ---
 #### 3. Can physical workers receive higher salaries in the future?
 I'm not sure. If they can **specialize** in a very **niche** area, then they might be able to charge their clients more for their work, but in the future I think most **manual work** will be **phased out** by machines or robots. So maybe their only chance to make more money is to make something quite unique.
+
+---
+#### 4. Do you think machines could replace human workers in the future?
+Yes I do. It's already happening across many professionals, like in supermarkets, fast food restaurants and so on. Robots are becoming **capable** of more and more tasks each year, so I think it'll be **a matter of time** until many jobs are completely **automated**. However, some jobs which require **a human touch** should still be done by humans, like teachers and doctors, because robots are quite poor at **reading human emotions**.
