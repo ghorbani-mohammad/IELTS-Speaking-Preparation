@@ -1,0 +1,2 @@
+#### 1. What kind of work can young people do in foreign countries?
+Most young people seem to work in **hospitality**, like in hotels, bars or restaurants. Those kinds of places have fairly **menial work** and long shifts where you're **on your feet** all day, so it takes a young person with lots of energy to do it. If they're qualified, the young people can also go abroad to teach **their mother tongue**. That kind of work also requires a lot of energy and **fearlessness**, so it's perfect for younger people.
