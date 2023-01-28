@@ -4,3 +4,7 @@ Most young people seem to work in **hospitality**, like in hotels, bars or resta
 ---
 #### 2. Is it good for young people to have experience of living in other countries?
 Yes, absolutely. Traveling or living abroad can help young people mature and **gain a better understanding** of the world. **Stepping outside of their comfort zone** could also give them more **self-belief**, because they will have to **take on** new challenges, such as the **language barrier** and cultural differences. So I think it's a very **beneficial** experience for them.
+
+---
+#### 3. Why are some people unwilling to work in other countries?
+I suppose most people are put off by homesickness, as in, they would miss their family and friends, their favorite meal might be difficult to find and it could make life hard overseas. The language barrier is another obstacle in people's daily lives when they're outside of their home country, so overall it can be quite a stressful and mentally taxing experience.
