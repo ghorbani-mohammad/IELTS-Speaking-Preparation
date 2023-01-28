@@ -1,2 +1,6 @@
 #### 1. What kinds of jobs need a lot of physical work?
 One of the most physical jobs I can think of is construction work. A lot of those guys work in **the baking sun**, **lugging around** heavy materials like bricks, sand and concrete, all in **protective gear** which must be very hot too. Being mechanic must also be quite physical because wheels and engines are extremely **weighty**. Decorating a room is **surprisingly hard work** as well, even painting a wall or moving some furniture can be **exhausting**.
+
+---
+#### 2. What's the difference between the payment for physical work and that for mental work?
+Nowadays, jobs that require a high level of **mental intelligence** seem to earn much higher salaries than **physical labourers**. I suppose that's because it's difficult for most people to remember such **vast quantities** of information like how doctors hav to remember medicines, **side-effects** and other physical **ailments** for their patients. Likewise, scientists have to remember a huge number of **mathematical equations**, **formulae** and other information to do their work. That's considered much more difficult than physical work, which can be **mastered** with a lot of practice and time - and I think that's reflected in their salaries.
