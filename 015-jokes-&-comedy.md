@@ -4,3 +4,7 @@ Yes absolutely. Comedy is one of the most popular **film genres** in the world. 
 ---
 #### 2. Why do people of all ages like cartoons?
 I suppose cartoons still **get a laugh out of** old and young people because **slapstick comedy** is almost **timeless**. Classic cartoons like Tom and Jerry have some clever physical jokes, and sometimes the **visual effects** are quite **imaginative** and appealing as well.
+
+---
+#### 3. Why do some people like to make others laugh?
+I think it's because people like **bringing joy** into their friends' lives and making them laugh is one way to do that. Laughing together **strengthen the relationship** between friends, so naturally people want to **feel closer** with their friends by telling them jokes.
