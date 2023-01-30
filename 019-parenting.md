@@ -8,3 +8,7 @@ Since most grandparents are retired, they have a lot of free time **on their han
 ---
 #### 3. What's the most important quality of parents?
 I think all good parents are kind, supportive and patient with their children. They have to be patient in their child's **early years** while they learn to **behave properly**, and likewise they have to be patient while they **figure out** what they want to do in their **adult life** too. Most importantly, though, they should support their children in **whatever path they choose** and help them **make the most of** their opportunities and decisions, whether that's in their hobbies, education or careers.
+
+---
+#### 4. How can new parents learn about parenting?
+New parents can **turn to** their own parents for help and advice about how to **raise** their own child. Their parents surely remember the things **they wish they** had known while they were **new parents**. As well as that, if they have any friends who are also parents they can ask them for any **tips or tricks**, especially since they're more likely to have a **grasp** of more modern **parenting techniques**. Finally, there are hundred of books, blogs and websites designed to prepare people for **parenthood**. So I think there are lots of ways they can learn about raising kids.
