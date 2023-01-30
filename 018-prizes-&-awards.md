@@ -1,0 +1,2 @@
+#### 1. What kinds of prizes do students get?
+In schools, most students are awarded **relatively small** prizes, like candy, **ribbons**, medals, certificates or even small **trophies** they can show to their friends and family. I suppose schools don't have much **financing** to **shell out** on really **elaborate** or expensive prizes, so I think they **stick to** simple ones.
