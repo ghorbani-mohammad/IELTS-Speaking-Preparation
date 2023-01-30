@@ -1,0 +1,2 @@
+#### 1. Who is usually the leader in a family?
+Traditionally, it's been **the father of the house** who's seen **as the head of the family**. I suppose that's because men typically earn a higher **income** than women do, so they believe that **gives them the right** to make most of the decisions for the family. That said there are also families where the mother is the leader, because she probably spends more time with the children and so knows what's best for them **going forward**. So I think it depends on the family.
