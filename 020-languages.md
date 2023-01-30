@@ -8,3 +8,7 @@ I suppose it depends on what you need the language for. If you're already living
 ---
 #### 3. Does a person still need to learn other languages, if he or she is good at English?
 I think there are other important and **global languages** apart from English. Spanish has something like 600 million speakers, so knowing some allows you to travel through almost every country in Central and South America with **relative ease**. There's also Arabic, which is spoken by a **whole host of** countries across North Africa and the Middle East. And of course, Chinese is growing as a language of business too, so those are 3 other languages that can be **equally as important as** English.
+
+---
+#### 4. Do you think minority languages will disappear?
+Unfortunately yes, I think it's quite likely. I read somewhere that at least 50 percent of the languages spoken on Earth **will have become extinct** by the year 2100. Which is quite **a shame** because it will mean there's less **diversity** on Earth. I think it's due to the fact that global languages are required if you want to study at a **top university** or be **competitive** in the workplace. So lots of schools in small countries are teaching English, French or Arabic instead of their native minority languages, or their parents do not teach them any traditional languages because they think it won't help their future, and eventually the language is lost with each **generation**.
