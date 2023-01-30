@@ -8,3 +8,7 @@ Yes, I think that would be fair. At the moment, it seems like athletes and **spo
 ---
 #### 3. Why should people be awarded?
 Award and prizes are great **motivational tools** for kids and for adults as well. Once people know there's a prize **on the line**, they give an extra 10%, **dig deep** and really **try their best**, which I think is a great way for people to realize their true **potential** and improve their skills. If there were no prizes, they wouldn't **put in half the effort**.
+
+---
+#### 4. Are awards always good for the winners?
+**To an extent yes**, because winning awards and prizes can give people confidence in their own abilities. However, too many rewards and prizes can make people **cocky** and **big-headed** because they think they are better than everyone else. **Conversely**, it could even stop people from reaching their potential because they already think they are the best in the school or office, so they stop **giving it their all** and actually **fall behind** their peers.
