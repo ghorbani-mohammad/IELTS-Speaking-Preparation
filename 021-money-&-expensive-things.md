@@ -1,2 +1,6 @@
 #### 1. What kind of expensive things do people like to buy?
 It seems like people are happy to **splurge on** nice cars. Maybe German **imports** like Porsche or Mercedes that you see driving around big cities. Not only are they very **stylish**, they're often very comfortable too. Designer brands also act as a kind of **status symbol**, which means people like to show off their **authentic** handbags or shoes to their friends and family. Another thing might be appliances for their homes. Some fridges, ovens and even washing machines can be extremely expensive but usually because they are very **efficient** and reliable. So those are some expensive things that **come to mind**.
+
+---
+#### 2. What's the difference between women and men in buying things?
+**Very generally speaking**, I suppose **it can be said** that men tend to spend their money on things which are more **practical**. That can include smartwatches, **power tools** or computers because they can save them time and effort at work or at home. In regards to women, however, I guess the **stereotype** is that women prefer to buy things related to their appearance, such as clothes, accessories, jewellery, and so on. I suppose for women there's a bit more **societal pressure** on them to always look perfect. So those are some very general differences that come to mind.
