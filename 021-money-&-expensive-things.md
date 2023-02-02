@@ -4,3 +4,7 @@ It seems like people are happy to **splurge on** nice cars. Maybe German **impor
 ---
 #### 2. What's the difference between women and men in buying things?
 **Very generally speaking**, I suppose **it can be said** that men tend to spend their money on things which are more **practical**. That can include smartwatches, **power tools** or computers because they can save them time and effort at work or at home. In regards to women, however, I guess the **stereotype** is that women prefer to buy things related to their appearance, such as clothes, accessories, jewellery, and so on. I suppose for women there's a bit more **societal pressure** on them to always look perfect. So those are some very general differences that come to mind.
+
+---
+#### 3. What are the advantages and disadvantages about being rich?
+I suppose **it goes without saying** that rich people can enjoy pretty **luxurious** lifestyle. They can **surround themselves** with expensive products like sports cars, **mansions** and **state-of-the-art** technology, and enjoy the best of everything. However, it can be a little bit risky to be **openly wealthy**, because rich people can **make themselves targets** for thieves or criminals who want to steal their **belongings** or access their bank accounts. As well as that, if you were so rich you never had to work, I think that would be a bit boring after a while.
