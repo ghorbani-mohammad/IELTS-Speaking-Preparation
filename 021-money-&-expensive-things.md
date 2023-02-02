@@ -1,2 +1,2 @@
 #### 1. What kind of expensive things do people like to buy?
-It seems like people are happy to splurge on nice cars.
+It seems like people are happy to **splurge on** nice cars. Maybe German **imports** like Porsche or Mercedes that you see driving around big cities. Not only are they very **stylish**, they're often very comfortable too. Designer brands also act as a kind of **status symbol**, which means people like to show off **authentic** handbags or shoes to their friends and family. Another thing might be appliances for their homes. Some fridges, ovens and even washing machines can be extremely expensive but usually because they are very **efficient** and reliable. So those are some expensive things that **come to mind**.
