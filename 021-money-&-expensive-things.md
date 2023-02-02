@@ -8,3 +8,7 @@ It seems like people are happy to **splurge on** nice cars. Maybe German **impor
 ---
 #### 3. What are the advantages and disadvantages about being rich?
 I suppose **it goes without saying** that rich people can enjoy pretty **luxurious** lifestyle. They can **surround themselves** with expensive products like sports cars, **mansions** and **state-of-the-art** technology, and enjoy the best of everything. However, it can be a little bit risky to be **openly wealthy**, because rich people can **make themselves targets** for thieves or criminals who want to steal their **belongings** or access their bank accounts. As well as that, if you were so rich you never had to work, I think that would be a bit boring after a while.
+
+---
+#### 4. Why are some sports expensive? Are they for everyone?
+It's typically the equipment that starts to **add up**. For scuba-diving there's the oxygen tank, the masks, wetsuits, fins and other things, none of which are cheap and take **trained professionals** to maintain and user properly. **Similarly**, hose-riding is a very expensive hobby because you need a stable for the horse, as well as food and **stable-hands** and vets to take care of the animal. Perhaps for **the wealthy** it's **just a drop in the ocean** for them, but for most **ordinary folks** it can be **prohibitively expensive**.
