@@ -1,2 +1,6 @@
 #### 1. Is it difficult for some people to express their feelings?
 I think it **varies from person to person**. There are some people who **wear their hearts on their sleeves**, **most likely** because they were raised in a more emotional and open **household**. At the same time, there are people who are very **reserved** about their feelings. **Typically** it's men who **struggle** with expressing their emotions, it may be because they have been taught that men shouldn't express themselves openly as it's **a sign of weakness** or an **overreaction**. I think women tend to **open up** a little more freely than men because there's less **stigma** attracted to it.
+
+---
+#### 2. Who do you think talk more? children or grown-ups?
+Definitely children, School **cafeterias** and playgrounds are incredibly **noisy** places because children love talking. They talk to their friends about absolutely everything, they also **bombard** their teachers and parents with **a constant stream** of questions, so kids love to talk. In contrast, I think adults tend to talk less, but say more, as they're able to communicate more **precisely** and **relay** exactly what they mean more effectively.
