@@ -4,3 +4,7 @@ I think it **varies from person to person**. There are some people who **wear th
 ---
 #### 2. Who do you think talk more? children or grown-ups?
 Definitely children, School **cafeterias** and playgrounds are incredibly **noisy** places because children love talking. They talk to their friends about absolutely everything, they also **bombard** their teachers and parents with **a constant stream** of questions, so kids love to talk. In contrast, I think adults tend to talk less, but say more, as they're able to communicate more **precisely** and **relay** exactly what they mean more effectively.
+
+---
+#### 3. What's the differences between males and females in terms of expressing their feelings?
+**As I mentioned before**, I think women are much better and much more **articulate** about describing their feelings. I suppose they are not as embarrassed to do it, because it's more **acceptable** for females to **show emotion** among friends or family. So as a result, they practice doing it more often and develop the right vocabulary to share their emotions accurately. Men, on the other hand, tend to **bottle up** their feelings or **suppress** them completely, because they might have been told that emotions interfere with their work and it makes them look weak. So I think those are some **key differences**.
