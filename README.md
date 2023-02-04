@@ -26,3 +26,4 @@ In each subject, there are some questions and answers which you could use for ge
 - [**021 Money and Expensive Things**](https://github.com/ghorbani-mohammad/ielts-speaking-preparation/blob/main/021-money-%26-expensive-things.md)
 - [**022 Feeling and Emotion**](https://github.com/ghorbani-mohammad/ielts-speaking-preparation/blob/main/022-feeling-%26-emotion.md)
 - [**023 Conversation**](https://github.com/ghorbani-mohammad/ielts-speaking-preparation/blob/main/023-conversation.md)
+- [**024 Intelligence**](https://github.com/ghorbani-mohammad/ielts-speaking-preparation/blob/main/024-intelligence.md)
