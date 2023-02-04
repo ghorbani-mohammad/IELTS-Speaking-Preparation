@@ -1,2 +1,6 @@
 #### 1. Why are some children more intelligent than others?
 To be honest, I don't think there's only one **definition** of intelligence. I think there are many different types of it, so some children **excel** at school because they have a high level of **academic intelligence** or a very **strong memory**. Whereas other kids who feel 'stupid' just have a different type of intelligence. Maybe they are **socially intelligent** or **physically** with their body. So I think children find their talent at different times and I don't think any one child is smarter than the other because they all have different skills.
+
+---
+#### 2. Who do you think plays a more important role in a child's development, teachers or parents?
+**Ultimately**, I think parents have the biggest effect. That's because children spend more time with their parents at home and during school holidays so there's **a stronger connection** between child and parent, which means the parents actions have more influence over the child. **That said**, I think teachers can be very important in teaching them and **pointing them in the right direction** at school, but overall I think parents have the biggest **impact**.
