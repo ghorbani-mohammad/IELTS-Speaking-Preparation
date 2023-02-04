@@ -1,0 +1,2 @@
+#### 1. What are the types of books that young people like to read?
+Fiction and fantasy seem to be **bestsellers** among **young readers** - books like Harry Potter and The Hobbit. I think they are **hits** with kids because tend to have quite **active imaginations**, so they can **envisage** these **fantastical** worlds and creatures **in their heads** while they read. **In contrast**, kids tend to dislike history because the writing can very **dry** and boring for them.
