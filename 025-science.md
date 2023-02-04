@@ -8,3 +8,7 @@ I think science influences almost **every part of our daily lives** at the momen
 ---
 #### 3. What can individuals do for scientific research?
 **Off the top of my head**, the only fet things I can think of are **donating** money to scientific research groups, or actually **going ahead** and participating in **scientific studies** yourself. There are plenty of people who actually **make a living** as **human guinea pigs**, where they allow scientists to test new drugs on them and **observe** their reactions. So I suppose those are a few ways you can **contribute** to science even if you don't have any scientific **qualifications**.
+
+---
+#### 4. What influence can international cooperation in science bring about?
+When scientists **collaborate** then they can be a very **positive influence** on the world. Even countries that historically **oppose** each other, such as the USA and Russia, both work together when they send astronauts to the ISS to **conduct** experiments, which proves that they can **get along** if they really want to. Nowadays especially, **the hunt for** a COVID-19 **vaccine** has brought a lot of different countries together. Hopefully, by sharing their **findings** and research, they can find a vaccine more quickly and help the world **return to normal** soon.
