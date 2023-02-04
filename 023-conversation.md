@@ -8,3 +8,7 @@ To be honest, I don't think there's much difference between the topics that peop
 ---
 #### 3. How do you know if others are not interested in your conversation?
 Their **body language** is usually the main **giveaway**. Lack of **eye contact** is another **tell-tale sign** that someone isn't **engaged** or interested in what you have to say. So if they are looking at the floor or their eyes are **wandering** around the room, then you might want to change the subject. **Crossed arms** are also a sign that someone doesn't feel completely comfortable in the conversation. Of course, the biggest **dead giveaway** is if someone's playing on their phone instead of listening to you.
+
+---
+#### 4. What's the influence of modern technology, such as the internet and e-mails, on our communication?
+The **speed of communication** has increased **dramatically** since **the advent of the internet**. We can **ping** messages to the other side of **the globe** with **touch of a button**, which is incredible and make it easier to **keep up** with friends who live far away. At the same time however, because communication is **border-line instant**, then it comes with added pressure of completing tasks faster for work. The fact that you're always 'online' or **reachable** on your phone or **via** email can create a lot of stress. So I think those are some main influences on people now.
