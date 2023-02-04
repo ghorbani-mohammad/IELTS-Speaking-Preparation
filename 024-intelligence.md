@@ -4,3 +4,7 @@ To be honest, I don't think there's only one **definition** of intelligence. I t
 ---
 #### 2. Who do you think plays a more important role in a child's development, teachers or parents?
 **Ultimately**, I think parents have the biggest effect. That's because children spend more time with their parents at home and during school holidays so there's **a stronger connection** between child and parent, which means the parents actions have more influence over the child. **That said**, I think teachers can be very important in teaching them and **pointing them in the right direction** at school, but overall I think parents have the biggest **impact**.
+
+---
+#### 3. Do you think smart people tend to be selfish?
+That's an interesting question because I think it's actually true. First of all, people who are very intelligent may have a **great academic intelligence**, but poor **social intelligence**. That means they're not very good at **interacting** with other people and they might develop this **misguided belief** that they deserve more **credit** or higher salaries that anyone else. **On top of that**, if people are smart at a young age, they're used to getting attention from their parents and their teachers. If they don't get attention for whatever reason, they could start to behave badly and behave **selfishly** in order to **bring the attention back to them**. So for those reasons, I think it's actually true.
