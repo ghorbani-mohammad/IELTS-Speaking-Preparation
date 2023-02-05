@@ -1,0 +1,2 @@
+#### 1. Where do people get news?
+**As with most things** nowadays, the internet is the main source of information for most people. Most phones come pre-installed with some kind of news app now, plus there is a whole host of online news sites where you can get breaking news updates.
