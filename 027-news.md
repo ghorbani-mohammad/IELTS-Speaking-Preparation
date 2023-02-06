@@ -3,4 +3,4 @@
 
 ---
 #### 2. What kind of news do people like to read? Why?
-I think it depends on the person, because some people are quite interested in **current events** and political **going-on**. **Businesspeople** especially might want to **keep abreast** of the latest business trends, whereas others are only concerned with **local news** because they feel that affects them most. Others, however, probably find **current news** so **depressing** that they only **read feelgood** stories with **happy endings**. 
+I think it depends on the person, because some people are quite interested in **current events** and political **goings-on**. **Businesspeople** especially might want to **keep abreast** of the latest business trends, whereas others are only concerned with **local news** because they feel that affects them most. Others, however, probably find **current news** so **depressing** that they only **read feelgood** stories with **happy endings**. 
