@@ -11,4 +11,4 @@ Due to COVID-19 a lot of companies **shifted** their product **launches** and pr
 
 ---
 #### 4. What do you think of the news on social media?
-I think if people follow **verified** news agencies, then they should be able to trust what they read on social media. However, unfortunately there is **a worrying amount** of news that is **unreliable** or completely **falsified**. It's becoming increasingly difficult to tell the difference between official and unofficial **news sources**, so I'd say that most people should get their news from **bonafide** newspaper or news websites.
+I think if people follow **verified** news agencies, then they should be able to trust what they read on social media sites. However, unfortunately there is **a worrying amount** of news that is **unreliable** or completely **falsified**. It's becoming increasingly difficult to tell the difference between official and unofficial **news sources**, so I'd say that most people should get their news from **bonafide** newspaper or news websites.
