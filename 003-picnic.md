@@ -3,7 +3,7 @@ To be honest, **hardly ever**. There was a park just **a stone's throw from** ou
 
 ---
 #### 2. How often do you go on a picnic now?
-Never, to be **totally honest**. I don't think I've been on a picnic **in my adult life**. Maybe I will when I'm a bit older or have children, but I'm mich more interested in eating at restaurants because they serve **a wider selection of meals**, it's nice and warm in the winter and you don't have to do any of the **washing up** afterwards!
+Never, to be **totally honest**. I don't think I've been on a picnic **in my adult life**. Maybe I will when I'm a bit older or have children, but I'm much more interested in eating at restaurants because they serve **a wider selection of meals**, it's nice and warm in the winter and you don't have to do any of the **washing up** afterwards!
 
 ---
 #### 3. Where do you go on a picnic?
