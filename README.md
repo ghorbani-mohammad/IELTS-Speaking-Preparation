@@ -30,3 +30,4 @@ In each subject, there are some questions and answers which you could use for ge
 - [**025 Science**](https://github.com/ghorbani-mohammad/ielts-speaking-preparation/blob/main/025-science.md)
 - [**026 Reading and Books**](https://github.com/ghorbani-mohammad/ielts-speaking-preparation/blob/main/026-reading-%26-books.md)
 - [**027 News**](https://github.com/ghorbani-mohammad/ielts-speaking-preparation/blob/main/027-news.md)
+- [**028 Concentration**](https://github.com/ghorbani-mohammad/ielts-speaking-preparation/blob/main/028-concentration.md)
