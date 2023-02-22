@@ -1,14 +1,14 @@
 #### 1. Do you recycle now? Why?
-"Yes I do. I've been recycling **for as long as I can remember**. I think it's extremely important that everyone tries to reduce their **impact on the planet**, and recycling is a very **straightforward** and **impactful** way to **cut down on** the amount of waste we produce. So I always crush **cans**, **rinse** plastic bottles, and **separate** my rubbish before **disposing** of it in the right **receptacle**."
+Yes I do. I've been recycling **for as long as I can remember**. I think it's extremely important that everyone tries to reduce their **impact on the planet**, and recycling is a very **straightforward** and **impactful** way to **cut down on** the amount of waste we produce. So I always crush **cans**, **rinse** plastic bottles, and **separate** my rubbish before **disposing** of it in the right **receptacle**.
 
 ---
 #### 2. Did you recycle when you were a kid?
-"Only a little bit. When I was at school recycling was a **fairly new idea**, and it wasn't until the government made it **mandatory** and supplied every **household** with **recycling bins** that my family started **taking it seriously** and recycling everything and I guess I must have started around then as well."
+Only a little bit. When I was at school recycling was a **fairly new idea**, and it wasn't until the government made it **mandatory** and supplied every **household** with **recycling bins** that my family started **taking it seriously** and recycling everything and I guess I must have started around then as well.
 
 ---
 #### 3. Will you recycle in the future?
-"Absolutely, I'm not going to stop until **a better solution comes along**. Recycling is the best way for people to start reducing the **sheer amount of** plastic **polluting** our environment, so I fully support it and will continue to do it **for as long as necessary**."
+Absolutely, I'm not going to stop until **a better solution comes along**. Recycling is the best way for people to start reducing the **sheer amount of** plastic **polluting** our environment, so I fully support it and will continue to do it **for as long as necessary**.
 
 ---
 #### 4. What kind of things do you recycle?
-"I try to recycle as much as I can. I **crush** metal cans, I **rinse** and crush plastic bottles too. I also **flatten** cardboard boxes when I get online deliveries. If I have any appliances that break, then I'll even try to recycle those by **dropping them off** at a **recycling plant** to be **taken apart**."
+I try to recycle as much as I can. I **crush** metal cans, I **rinse** and crush plastic bottles too. I also **flatten** cardboard boxes when I get online deliveries. If I have any appliances that break, then I'll even try to recycle those by **dropping them off** at a **recycling plant** to be **taken apart**.
