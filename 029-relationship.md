@@ -17,6 +17,7 @@ Physical Intimacy: Physical intimacy is an important aspect of many romantic rel
 
 Overall, a successful romantic relationship requires both partners to be committed, willing to put in the effort, and continually working to build and maintain a strong connection.
 
+----
 
 #### 2. What are the advantages and disadvantages of living with a partner before getting married?
 
